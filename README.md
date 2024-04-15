@@ -1,6 +1,6 @@
-### I am Oshiro! 🐺
+## I am Oshiro! 🐺
 
-## Somethings about me..
+### Somethings about me..
 - 🎭  I'm still learning to program...
 - ✨  Games are my inspiration!
 - 🐺  I'm a furry with a wolf fursona!
