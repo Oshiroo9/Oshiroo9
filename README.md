@@ -8,3 +8,4 @@
 - 🇧🇷  Brazilian
 - 🦴  Pronouns: He/him
 - 🕸   I LOVE COFFE!!  
+(pfp not mine)
