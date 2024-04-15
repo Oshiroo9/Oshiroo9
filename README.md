@@ -7,5 +7,6 @@
 - 💬  Feel free to contact me!
 - 🇧🇷  Brazilian
 - 🦴  Pronouns: He/him
-- 🕸   I LOVE COFFE!!  
-(pfp not mine)
+- 🕸   I LOVE COFFE!!
+  
+*(pfp not mine)*
